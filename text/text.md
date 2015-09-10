@@ -95,7 +95,7 @@ reckon now I'm a loyal Republic
 citizen, ain't I? 
 
 So. It was early winter, but the weather was still sunny and mild. I was walking
-in the docks, as I was wont to do. The air was clear and I could see ships
+in the docks, as I was wont to do. The air was crisp and clear and I could see ships
 docking and leaving,  
 ships from all our sister nations of the world, Spain, Cuba, Colombia,
 Puerto Rico, but also from not-so-friendly places 
